@@ -1,0 +1,2 @@
+# fanzzyyxrimuru
+🚀 Deployed via Bot
